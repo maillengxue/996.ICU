@@ -27,3 +27,4 @@ Related press:
 * *Metro:* [China’s richest man makes his employees work 72 hours a week and calls it a ‘blessing’](https://metro.co.uk/2019/04/13/chinas-richest-man-makes-employees-work-72-hours-week-calls-blessing-9197237/). 13 April, 2019
 * *Global Times:* [Company's competitiveness can't rest on 996 overtime culture](http://www.globaltimes.cn/content/1145888.shtml). 14 April, 2019
 * *Pandaily:* [Is 996 Truly a Blessing? Let’s Hear What Richard Liu and Jack Ma Have to Say.](https://pandaily.com/is-996-truly-a-blessing-lets-hear-what-richard-liu-and-jack-ma-has-to-say/). 14 April, 2019
+* *CNN:* [Jack Ma endorses China's controversial 12 hours a day, 6 days a week work culture](https://www.cnn.com/2019/04/15/business/jack-ma-996-china/index.html/). 15 April, 2019
