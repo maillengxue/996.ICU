@@ -149,6 +149,8 @@
 - 金融时报：[China tech worker protest against long working hours goes viral](https://archive.is/IZqTj)
 - Reuters：[Rare overtime protest by China tech workers goes viral](https://www.reuters.com/article/us-china-tech-labour/rare-overtime-protest-by-china-tech-workers-goes-viral-idUSKCN1RH12B)
 
+- CNN:[Jack Ma endorses China's controversial 12 hours a day, 6 days a week work culture](https://www.cnn.com/2019/04/15/business/jack-ma-996-china/index.html)
+
 ## 韩文媒体
 
 - 한경닷컴：["잠도, 섹스도, 삶도 없다"…'996룰'에 반기든 中 스타트업 직원들](https://www.hankyung.com/article/201904053785i)
